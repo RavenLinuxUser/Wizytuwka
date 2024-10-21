@@ -4,7 +4,3 @@ mam na imię Daniel
 powodzenia!
 
  ***(NIE MA INNEGO KONTAKTU)***
-
-***zainteresowania:***
-ogułem to interesuje się programowaniem ITD.
-Mam kilka ciekawych tematów do rozmowy.
