@@ -1,8 +1,9 @@
 mam na imię Daniel 
 ***jak sie ze mną skontaktować:***
-- **Numer:** +48 530 131 268
 - **Discord:** raven_7374 (Napisz: "Heja dałeś mi wizytówke)
 powodzenia!
+
+ ***(NIE MA INNEGO KONTAKTU)***
 
 ***zainteresowania:***
 ogułem to interesuje się programowaniem ITD.
